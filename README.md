@@ -23,12 +23,22 @@ i'm boxten!
 I'm a boxten fullfic, and i'm transmasc atm, agenderfluid usually, and pan
 
 
+glisten yume! 
+### non-sharing!
+
+## ♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫
+
 ✦ Currently listening: They Will Bury Me A Woman
 
 
 ✦ Status: aw aw boxten aw!!
 
 <br>
+
+##### *I can't believe I'm in the same elevator as THE Vee...*
+
+<img width="60" height="60" alt="boxten" src="https://github.com/user-attachments/assets/2487098b-8ba2-4712-8d06-a8dd3b255f98" />
+
 
 ### ── now playing ──
 
