@@ -28,7 +28,7 @@ glisten yume!
 
 ## ♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫
 
-✦ Currently listening: Just A Girl
+✦ Currently listening: American Idiot
 
 
 ✦ Status: aw aw boxten aw!!
@@ -44,9 +44,9 @@ glisten yume!
 
 `♫` ━━━━━━━━━━━━━━━━━ `♫`
 
-**track 1 — Just A Girl**
+**track 1 — American Idiot**
 
-*All those little things... THAT I FEARRRR*
+*NOT A PART OF THE M.A.G.A AGENDA!!!*
 
 <br>
 
