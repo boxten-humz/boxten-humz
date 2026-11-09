@@ -28,7 +28,7 @@ glisten yume!
 
 ## ♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫
 
-✦ Currently listening: They Will Bury Me A Woman
+✦ Currently listening: Just A Girl
 
 
 ✦ Status: aw aw boxten aw!!
@@ -44,9 +44,9 @@ glisten yume!
 
 `♫` ━━━━━━━━━━━━━━━━━ `♫`
 
-**track 1 — They Will Bury Me A Woman**
+**track 1 — Just A Girl**
 
-*When I die they will bury me a woman...*
+*All those little things... THAT I FEARRRR*
 
 <br>
 
