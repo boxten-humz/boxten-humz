@@ -9,7 +9,7 @@
 
 <img src="https://img.shields.io/badge/THE-BOXTEN-1A0B2E?style=plastic&labelColor=301047">
 <img src="https://img.shields.io/badge/STATUS-ONLINE-1A0B2E?style=plastic&labelColor=301047">
-<img src="https://img.shields.io/badge/MOOD-GLEE-1A0B2E?style=plastic&labelColor=301047">
+<img src="https://img.shields.io/badge/MOOD-eh-1A0B2E?style=plastic&labelColor=301047">
 
 <br>
 
