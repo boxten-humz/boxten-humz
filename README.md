@@ -28,6 +28,8 @@ glisten yume!
 
 ## ♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫
 
+
+
 ✦ Currently listening: American Idiot
 
 
@@ -54,17 +56,22 @@ glisten yume!
 
 *I feel like we could have done better last floor...*
 </div>
-<!--
-**boxten-humz/boxten-humz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
+<div align="center">>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<details>
+  <summary> open if yr gay!! [ aka fandoms ] </summary>
+
+ 
+Dandy's World
+
+the OSC!
+
+uhhh args
+
+BAD THINGS
+
+PMMM
+
+ok bye
