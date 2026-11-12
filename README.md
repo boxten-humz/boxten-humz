@@ -1,7 +1,8 @@
 <div align="center">
 
-<img width="735" height="418" alt="Boxten ~ Banner🎶 Dandy&#39;s World" src="https://github.com/user-attachments/assets/aedd164f-f59f-4070-a96f-444b261a7f6e" />
-
+<a href="https://spinningrat.online/">
+  <img width="735" height="418" alt="Boxten ~ Banner🎶 Dandy's World" src="https://github.com/user-attachments/assets/aedd164f-f59f-4070-a96f-444b261a7f6e" />
+</a>
 #### credits to the creator!
 
 
